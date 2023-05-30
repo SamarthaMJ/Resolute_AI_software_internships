@@ -1,0 +1,1 @@
+# Resolute_AI_software_internships
